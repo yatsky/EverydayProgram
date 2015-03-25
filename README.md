@@ -20,3 +20,9 @@
 * Got more and more familiar with Git, which is definitely a good thing!
 * Finished my first course `Data Scientist's tool box` from Data Science series on [Coursera](http://Coursera.com). Hope I'll get the statement soon. :D
 * Good night.
+
+##2015.03.25
+* Do something just for once is not that hard, but to do it everyday is very hard for anyone(except eating sort of things.:D)
+* I want to make it happen. My dream, my future.
+* Today I wrote ex5 to ex14 from Learn Python the Hard Way and found it really is doing some help! And I'm trying to practice my input because sometimes I would just make a lot of typos.
+* I want to keep a good life style, so, good night.
