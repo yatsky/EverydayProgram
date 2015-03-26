@@ -26,3 +26,9 @@
 * I want to make it happen. My dream, my future.
 * Today I wrote ex5 to ex14 from Learn Python the Hard Way and found it really is doing some help! And I'm trying to practice my input because sometimes I would just make a lot of typos.
 * I want to keep a good life style, so, good night.
+
+##2015.03.26
+* I spent most of the day worrying about my club, which is funny because you know what you are worrying about is not what you think it is. The only thing that we fear is fear itself.
+* I made some Photoshop work also, and uploaded some photos for people to give me some feedback. I think this is some sort of effective way to improve your skill. Because people see what you cannot see. As an author, you know what you want to convey behind the photo, but they don't. What they can do is just feel and guess. So if they see something totally different from yours, then it makes you ponder.
+* Of course I did my daily python work today, 5 exs if I recall correctly. These exs are getting harder-you need to understand rather than just type it.
+* Like I said yesterday, good life style, good night.
