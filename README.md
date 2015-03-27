@@ -32,3 +32,10 @@
 * I made some Photoshop work also, and uploaded some photos for people to give me some feedback. I think this is some sort of effective way to improve your skill. Because people see what you cannot see. As an author, you know what you want to convey behind the photo, but they don't. What they can do is just feel and guess. So if they see something totally different from yours, then it makes you ponder.
 * Of course I did my daily python work today, 5 exs if I recall correctly. These exs are getting harder-you need to understand rather than just type it.
 * Like I said yesterday, good life style, good night.
+
+##2015.03.27
+* I think I'm going to give myself a rest. Take a day off. Because this is Friday and there is a party waiting for me!
+* Also, I've come to the exercise asking me to read some code before I go any further into python. So, it's OK to have some fun and read some codes.
+* You may ask why I am writing this instead of going out right now? Well, I have to admit that I kind of like this diary-like note. I used to be a guy who didn't like to write diary at all. I've tried a lot of times. They all went for several days and died. It really surprises me that I would ever have this kind of feeling right now.
+* I'm going to karaoke by myself. :D (Turns out to be a good way to relive in a rainy day after so many stressed days.)
+* Good night.(This is to the other end of Mother Earth. :P) 
