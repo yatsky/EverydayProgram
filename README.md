@@ -39,3 +39,10 @@
 * You may ask why I am writing this instead of going out right now? Well, I have to admit that I kind of like this diary-like note. I used to be a guy who didn't like to write diary at all. I've tried a lot of times. They all went for several days and died. It really surprises me that I would ever have this kind of feeling right now.
 * I'm going to karaoke by myself. :D (Turns out to be a good way to relive in a rainy day after so many stressed days.)
 * Good night.(This is to the other end of Mother Earth. :P) 
+
+##2015.03.28
+* I'm at home right now.
+* Had a dinner with my elder sister and her husband, with all the two family members.
+* It's natural to get tired after such a feast.
+* So, I think I'd better to have a shower and embrace my bed.
+* Good night, everyone.
