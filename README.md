@@ -46,3 +46,10 @@
 * It's natural to get tired after such a feast.
 * So, I think I'd better to have a shower and embrace my bed.
 * Good night, everyone.
+
+##2015.03.29
+* Today my time was mostly spent on transportation. (I don't like this.
+* I read some pages from `Python cookbook` but I think it is for those experienced guys, right? What I need now is a small project like the address book project I should've been doing.
+* But procrastination...oh, no. And some fear? Also some laziness. They all come together and you just can't do it. You just shy away. (is this phrase correct?)
+* I did learn something, though. I'm taking (failing) the R Programming course on Coursera, so I played with swirl(a package in R making learning R fun and easy) a while, but still I need to take lessons and finish the projects. Oh, that all starts (the) next month. All over again. A new start.
+* I must be some kind of crazy, so as usual, Good night fellows.
