@@ -53,3 +53,12 @@
 * But procrastination...oh, no. And some fear? Also some laziness. They all come together and you just can't do it. You just shy away. (is this phrase correct?)
 * I did learn something, though. I'm taking (failing) the R Programming course on Coursera, so I played with swirl(a package in R making learning R fun and easy) a while, but still I need to take lessons and finish the projects. Oh, that all starts (the) next month. All over again. A new start.
 * I must be some kind of crazy, so as usual, Good night fellows.
+
+##2015.03.30
+* Hi, I'm back here.
+* Today I am back again to the `Learn python the hard way`(sorry about the capitalization). I found it quite helpful that you leave what you're doing for some time and jump back. It just all comes back to you and you can oddly figure out things that you don't understand before. It's like, in Chinese Internet terms, "duang~" and your life changed. :D
+* I also did some R practice. With the help of swirl, I now also find it easy to learn R. What's really hard is to know and learn the math & stats behind the language. And I'm unfortunately not such a math guy.
+* But who knows? Years back I'd never think that I can actually program. You know, like writing / reading files and make changes to them and save, stuff like that. So, really you can do everything you want / dream to do. As long as you give it a shot and keep going, better everyday.
+* I'll pick up my Data Science again. (which I failed yet again recently) And I make a solemn promise here that ***I will make it.***
+* Fellows, life is so short. Come on and get your hands on something you want to do. If you find nothing you want to do. Then do something good to the community, and you'll find out.
+* As always, Good night.
