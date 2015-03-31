@@ -62,3 +62,11 @@
 * I'll pick up my Data Science again. (which I failed yet again recently) And I make a solemn promise here that ***I will make it.***
 * Fellows, life is so short. Come on and get your hands on something you want to do. If you find nothing you want to do. Then do something good to the community, and you'll find out.
 * As always, Good night.
+
+##2015.03.31
+* Today is my first 10-days streak on Github. Wow, I have to congratulate myself because I have never ever did a 10 days recording of my life for my whole life.( Can you understand this?)
+* But sadly, I didn't do any program today.
+* In fact, I went to a job fair in my school and found a quite good job as an English teacher (which has always been one of my dreams). To make it better, I found that the HR there was such a beauty (which made me go to talk with her for a quite long time, hahaha).
+* And the day after tomorrow I'll have an real interview in that company, hope I'll get the offer, haha!
+* Another thing is that I made something happen, which in English was quite hard to explain, it's all about the club I founded and we got some permit from the university (which will definitely help the club to grow faster and stronger).
+* Enough of daily story, and Good night fellows. :D
