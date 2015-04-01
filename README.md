@@ -70,3 +70,14 @@
 * And the day after tomorrow I'll have an real interview in that company, hope I'll get the offer, haha!
 * Another thing is that I made something happen, which in English was quite hard to explain, it's all about the club I founded and we got some permit from the university (which will definitely help the club to grow faster and stronger).
 * Enough of daily story, and Good night fellows. :D
+
+##2015.04.01
+* Fool's day
+* I fooled myself.
+* What the f*ck
+* What the f*ck
+* What the f*ck
+* I need to have a break
+* Upgraded my phone without backup
+* Today I just want to say Goodbye world.
+* Very upset here.
