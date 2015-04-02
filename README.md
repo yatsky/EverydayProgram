@@ -81,3 +81,12 @@
 * Upgraded my phone without backup
 * Today I just want to say Goodbye world.
 * Very upset here.
+
+##2015.04.02
+* Had a job interview and it was rather comforting.
+* Maybe I will be an English teacher soon.
+* Also had a `分享会`(well I don't know how to say this in English), it's all about running and emotion management. However I found it quite boring....
+* Watched the first episode of ***Yes, Prime Minister***. It was quite fun even though the whole show was not that HD.
+* Talked to several guys and I am really getting better.
+* 2mr I will program again.
+* Good Night, fellows.
