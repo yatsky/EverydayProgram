@@ -90,3 +90,8 @@
 * Talked to several guys and I am really getting better.
 * 2mr I will program again.
 * Good Night, fellows.
+
+##2015.04.03
+* I'm terrible at keeping promises. And I didn't program today. It's really a shame.
+* The day after tomorrow is the Chinese `清明` Festival, during which we commemorate our ancestors. So I will be spending almost the whole tomorrow in the car going my hometown, Wenzhou. Traffic jam is always an inevitable thing.
+* I have to get up early tomorrow, so everyone, Good night and code. 
