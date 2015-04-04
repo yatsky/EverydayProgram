@@ -95,3 +95,11 @@
 * I'm terrible at keeping promises. And I didn't program today. It's really a shame.
 * The day after tomorrow is the Chinese `清明` Festival, during which we commemorate our ancestors. So I will be spending almost the whole tomorrow in the car going my hometown, Wenzhou. Traffic jam is always an inevitable thing.
 * I have to get up early tomorrow, so everyone, Good night and code. 
+
+##2015.04.04
+* Just for the record.
+* Today was hard to explain everything.
+* So tired after 4 hours of driving (well, actually I was sitting at the back of the car.
+* And all the chats they had got me quite uncomfortable. But you have to live with this.
+* So much for today. See you tomorrow.
+* Good Night, fellows.
