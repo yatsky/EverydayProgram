@@ -103,3 +103,13 @@
 * And all the chats they had got me quite uncomfortable. But you have to live with this.
 * So much for today. See you tomorrow.
 * Good Night, fellows.
+
+##2015.04.05
+* Well, it suddenly hits me that this note should be something about my *Everyday programming* and not this daily-things-note down...
+* But this is actually really helping me to record my moods and thoughts of the day so I'd like to keep it this way.
+* Here begins the Chinese note-down.
+* 今天早上去给爷爷奶奶上了坟，磕了头。生命的力量真是顽强，不管是我们多少次把坟头清理干净，每次去的时候也总是苔藓和一些小树占据了所有的视线。郁郁葱葱的绿色就像是宫崎骏先生的动画那样动人。翠绿翠绿的苔藓和从石块中长出来的小树，好像是爷爷奶奶生命的延续，它们继续在这世界上生长着，似乎要长到这世界的末日——天昏地暗也无法阻止它们。
+* 后来又去了崖下岩，最近才出来的景点，其实跟普通的景点没有什么不同，不过我倒是第一次走在悬崖底下，然后沿着峭壁上的栈道爬上去，还站在了玻璃观景台上向下望了望。作为一个有恐高症的人我真是差点吓死，后来还走了铁索桥，OMG，给跪了，根本不敢往下看。
+* 景色真的是很不错的，我真的已经很少能在城市开到那种能反射月光的云了——城里的云或是雾霾都是不断在进行漫反射。
+* 明天就要回杭州了，下一次再来不知道又是什么时候，再见。
+* Good night, fellows.
