@@ -118,3 +118,10 @@
 * The day in the car..
 * So, so, so, so, tired...
 * Good night.
+
+##2015.04.06
+* Got a lot things to do.
+* Don't know what to do.
+* Wasted a lot of time.
+* Sigh and sad.
+* Good night.
