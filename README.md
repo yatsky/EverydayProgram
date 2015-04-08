@@ -125,3 +125,10 @@
 * Wasted a lot of time.
 * Sigh and sad.
 * Good night.
+
+##2015.04.07
+* Had my first training class in Cagoo. Ivy was really professional I'd say.
+* And met Kevin, a handsome guy from Bingjiang District, who is going to teach the same course like I do.
+* Finally launched the big project of my running club.
+* OK, tomorrow I'll have my first driver's test and good luck to me!
+* Good night to you.
