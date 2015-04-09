@@ -114,19 +114,19 @@
 * 明天就要回杭州了，下一次再来不知道又是什么时候，再见。
 * Good night, fellows.
 
-##2015.04.05
+##2015.04.06
 * The day in the car..
 * So, so, so, so, tired...
 * Good night.
 
-##2015.04.06
+##2015.04.07
 * Got a lot things to do.
 * Don't know what to do.
 * Wasted a lot of time.
 * Sigh and sad.
 * Good night.
 
-##2015.04.07
+##2015.04.08
 * Had my first training class in Cagoo. Ivy was really professional I'd say.
 * And met Kevin, a handsome guy from Bingjiang District, who is going to teach the same course like I do.
 * Finally launched the big project of my running club.
