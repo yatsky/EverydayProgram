@@ -132,3 +132,7 @@
 * Finally launched the big project of my running club.
 * OK, tomorrow I'll have my first driver's test and good luck to me!
 * Good night to you.
+
+##2015.04.09
+* Got my self a MBA, so you know, have to stay with it for some time.
+* Good night!
