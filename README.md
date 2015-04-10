@@ -134,5 +134,15 @@
 * Good night to you.
 
 ##2015.04.09
-* Got my self a MBA, so you know, have to stay with it for some time.
+* Got my self an MBA, so you know, have to stay with it for some time.
 * Good night!
+
+##2015.04.10
+* It's hard to make your own living, I'm now beginning to understand my parents, really.
+* When I fell asleep on the bus, a guy woke me when it was the final stop. Thank him.
+* My first training class actually went pretty well, and I think the next one will be better.
+* I should come back to programming before long.
+* Right after I finish configuring my MBA.
+* And getting git into work is one of the configurations.
+* This is going to be a fairly early Good night.
+* Anyway, Good night, fellows.
