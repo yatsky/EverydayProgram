@@ -146,3 +146,8 @@
 * And getting git into work is one of the configurations.
 * This is going to be a fairly early Good night.
 * Anyway, Good night, fellows.
+
+##2015.04.11
+* Restarted my R programming language(hope I'll get it through this time)
+* Restarted my translation mission. :D
+* I should figure out how to use iTunes now.
