@@ -151,3 +151,10 @@
 * Restarted my R programming language(hope I'll get it through this time)
 * Restarted my translation mission. :D
 * I should figure out how to use iTunes now.
+* Well, it seems that you cannot use iTunes to buy any music here in China, so I give up...
+* I restarted my python journey. I hope it will come along with R.
+* Today was quite good and long, I kind of like this feeling of hard-working(hope I'll still feel like this tomorrow :D)
+* This MBA is awosome on battery life!!!
+* Time to leave the libary of knowledge and go back to student apartment.
+* Have some fun and rest, you guys too.
+* Good night, everyone.
