@@ -158,3 +158,12 @@
 * Time to leave the libary of knowledge and go back to student apartment.
 * Have some fun and rest, you guys too.
 * Good night, everyone.
+
+##2015.04.12
+* I find that when you start do something new, you'll live a day like week, and a week like a month. It's just like that you were back to the old days when you were a child and got the most time of the world. You felt like a day never passed quick enough and you were always wondering why weren't you an grown-up then.
+* I don't know if you guys feel it this way. You may share your idea here (where I haven't prepared a place for you to share, that's awkward.)
+* Ah ha! Two girls(elder than me) told me that they would help me find a girlfriend, and asked me what are my criteria. Actually I felt that they were all quite fit to my criteria.(except that they are elder than me)
+* Well, another thing is that I love Mac! Yes, I do! It's fast, light, beautiful. It has a great battery life and it has a wonderful UI. Oh, but I'm not saying my old heavy computer is that bad. They are just for different purposes, since MBA cannot do any heavy work like video editting or after effects.
+* OK, it seems that I've been writing so many things today, which by the way, is good I think, but it's time to say good night.
+* (I suddenly found this MBA's edge too sharp that my arm nearly got cut)
+* Anyway, Good night, fellows.
