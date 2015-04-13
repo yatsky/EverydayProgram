@@ -172,3 +172,9 @@
 * I thought VMware Fusion is free...
 * There is some kind of virtual machine that is free.
 * But I just can't remember, so sad.
+* Did nothing today.
+* Though I got lots of things to do.
+* I want to live at home.
+* Oh, don't know what I'm saying
+* So let's just finish today.
+* Good night, everyone. Nice dream.
