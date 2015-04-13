@@ -167,3 +167,8 @@
 * OK, it seems that I've been writing so many things today, which by the way, is good I think, but it's time to say good night.
 * (I suddenly found this MBA's edge too sharp that my arm nearly got cut)
 * Anyway, Good night, fellows.
+
+##2015.04.13
+* I thought VMware Fusion is free...
+* There is some kind of virtual machine that is free.
+* But I just can't remember, so sad.
