@@ -178,3 +178,10 @@
 * Oh, don't know what I'm saying
 * So let's just finish today.
 * Good night, everyone. Nice dream.
+
+##2015.04.14
+* A bit tired today.
+* I hope I can be a better teacher someday.
+* Or maybe a better man, I'd say.
+* My eyes are soring so much, I'd better stop here.
+* Good Night, everyone.
