@@ -185,3 +185,9 @@
 * Or maybe a better man, I'd say.
 * My eyes are soring so much, I'd better stop here.
 * Good Night, everyone.
+
+##2015.04.15
+* Learned a lot about R and completed assignments I failed before.
+* Get busy living or get busy dying, keep it together!
+* Most of our fears are just imaginary, they are nothing once you try.
+* Good Night, fellows.
