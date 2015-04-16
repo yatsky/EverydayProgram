@@ -191,3 +191,16 @@
 * Get busy living or get busy dying, keep it together!
 * Most of our fears are just imaginary, they are nothing once you try.
 * Good Night, fellows.
+
+##2015.04.16
+* I'm gonna sleep early, like 10:30 pm.
+* And get up late, like 8 in the morning.
+* Study things I am interested, like programming.
+* And work out regularly, like running 3 days in a week.
+* Eat healthy.
+* Treat myself better.
+* To perform my own *Shawshank Redemption*
+* Guys, shoot for the sky
+* 'Cause even if you fall
+* You still land among stars.
+* Good Night, sky shooters.
