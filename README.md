@@ -204,3 +204,10 @@
 * 'Cause even if you fall
 * You still land among stars.
 * Good Night, sky shooters.
+
+##2015.04.17
+* Live, program, have fun.
+* I kind of feel myself getting along with the whole programming thing.
+* And I've been watching *The Jinx* which really blew my head away.(I'll talk about it more once I finish it, but it's already blown my head away.)
+* And I'm going to sleep.
+* Good Night, bye.
