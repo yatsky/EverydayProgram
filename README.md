@@ -211,3 +211,10 @@
 * And I've been watching *The Jinx* which really blew my head away.(I'll talk about it more once I finish it, but it's already blown my head away.)
 * And I'm going to sleep.
 * Good Night, bye.
+
+##2015.04.18
+* Get up from the bed, almost forgot this thing.
+* OK, tomorrow I'll start my first day living at home (so basically I've moved back from school)
+* Hope tomorrow will be good
+* So I better go to sleep now.
+* Good Night.
