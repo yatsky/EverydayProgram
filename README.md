@@ -228,3 +228,9 @@
 * And everyone, best luck! See you in the next movie, alright?
 * Going to sleep.
 * Good Night, everyone.
+
+##2015.04.20
+* Learned a lot of great stuff about Photoshop today! Very exciting!
+* But it's quite late, and I better go to sleep after the laudrying is finished.
+* Haha, so happy!
+* Good Night!
