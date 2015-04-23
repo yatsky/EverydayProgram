@@ -244,3 +244,10 @@
 * Just to keep myself updated.
 * Good Night, need to get up early tomorrow.
 * :)
+
+##2015.04.23
+* Sleep at 10:30
+* Get up at 7:30
+* Work hard
+* Work out
+* Good Night.
