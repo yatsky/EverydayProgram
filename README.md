@@ -251,3 +251,9 @@
 * Work hard
 * Work out
 * Good Night.
+
+##2015.04.24
+* HIIT day 2.
+* And R swirl some sections.
+* Going to sleep
+* Good Night.
