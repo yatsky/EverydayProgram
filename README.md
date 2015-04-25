@@ -257,3 +257,9 @@
 * And R swirl some sections.
 * Going to sleep
 * Good Night.
+
+##2015.04.25
+* Every man has to have a code and live with it.
+* What's your code?
+* Go and find out.
+* Good Night, guys.
