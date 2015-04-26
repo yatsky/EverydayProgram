@@ -263,3 +263,12 @@
 * What's your code?
 * Go and find out.
 * Good Night, guys.
+
+##2015.04.26
+* China's Internet sucks!
+* REALLY SUCKS!!!
+* I'm angry!!!
+* And I need to go abroad and sdudy!
+* I want to go to Newcastle!
+* I want to reach out to the stars!
+* Good Night! Fellows! Protect your dreams!
