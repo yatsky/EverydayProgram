@@ -272,3 +272,12 @@
 * I want to go to Newcastle!
 * I want to reach out to the stars!
 * Good Night! Fellows! Protect your dreams!
+
+##2015.04.27
+* Good day today.
+* Finished one translation.
+* Finished my R programming course.
+* Learned more about C4D.
+* There are few times in your life that you really want to make something happen.
+* Don't waste the opportunity.
+* Good Night, guys.
